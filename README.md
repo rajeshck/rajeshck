@@ -4,7 +4,7 @@ Just another chubby mallu IT guy from God's Own Country - Kerala, India.
 
 I'm into all kind of computer networking, wired, wireless, software defined, you name it lol.. 
 
-I'm improving my NetDevOps skills and github and internet community helped me alot, i wish to payback ;)
+I'm improving my NetDevOps skills hence git, python, REST, docker etc. Obviously internet community helped me alot, this blog is a tribute ;)
 
 When i'm not doing digital networking, i do social networking with my ADV riding buddies in the beautiful deserts and off-roads of QATAR.
 
